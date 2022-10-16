@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dhscpe
+- 👀 I’m interested in programming things
+- 🌱 I’m currently an undergraduate computer engineering student
+- 💞️ I’m looking to collaborate on helping me finding the right codes 
+- 📫 How to reach me @dhscpe on Instagram & twitter
